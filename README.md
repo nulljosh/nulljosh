@@ -17,4 +17,4 @@ The rest are at [jaybulb.com/apps](https://jaybulb.com/apps).
 
 ## Elsewhere
 
-[Journal](https://journal.jaybulb.com) · [X](https://x.com/nulljosh1) · [trommatic@icloud.com](mailto:trommatic@icloud.com)
+[Journal](https://journal.jaybulb.com) · [X](https://x.com/nulljosh1) · [info@jaybulb.com](mailto:info@jaybulb.com)
